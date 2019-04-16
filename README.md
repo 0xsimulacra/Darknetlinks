@@ -50,3 +50,24 @@ This obviously isn't a comprehensive list, just my current collction of links an
 - http://deepmar57fbonfiw.onion/ - Deep Market - Carding High Prices
 - http://videonwcswhrqynk.onion/ - Deep Video
 - http://dreadditevelidot.onion/ - The Grass Project
+- http://cards4ubxgdt3zvw.onion/ - Carding fourm/store
+- http://rumibookzo4fkho4.onion/ - RumiBook ONION
+- http://dstormer6em3i4km.onion/ - Daily Stormer
+- http://libertyimuhzl2kz.onion/ - Libertas Market
+- http://e5n6pdfitbnd3opu.onion/ - Reverse BTC Mixer
+- http://dumpedlqezarfife.onion/ - Fuck off - HaveIBeenPwned like thing
+- http://jzhzxv6w55rxjvvhytcvs3cx6gi3v5ts6vg2zavcgeazmdjuj6xzkcid.onion/ - Core Market
+- http://xhackergnluw32xz.onion/ - Another Hacker for hire "Xhacker"
+- http://h4ck3r007.torpress2sarn7xw.onion/ - Exact copy of above ^
+- http://torpress2sarn7xw.onion/ - TorPress
+- http://3wcwjjnuvjyazeza.onion/ - CensorBib - Free Research Papers
+- http://socirkkbtgxxsq4s.onion/ - Society Forum
+- http://s6cck3tjb7lajve5.onion/ - Spanish Forum/Chan?
+- http://lt77pnxdsowuvrnc.onion/ - Boob Chan
+- http://esycefjkcj2kx7sg.onion/ - On board - Chan
+- http://intel2iy3ky6hegf.onion/ - Intel Repository
+- http://torum6uvof666pzw.onion/ - Torum Hacking Forum
+- http://rajobsu7rlhcfamh.onion/ - Rakkunbay Job Board
+- http://answerstedhctbek.onion/ - Hidden Answers
+- http://b34xhb2kjf3nbuyk.onion/ - Stock Insiders
+- http://fullzstr24smu55i.onion/ - Fullz Autoshop - Seems sketchy
